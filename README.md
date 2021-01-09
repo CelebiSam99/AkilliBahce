@@ -1,0 +1,2 @@
+# AkilliBahce
+Staj ödevimiz
